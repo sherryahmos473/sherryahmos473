@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sherry.ahmos@gmail.com**
 
-- 📄 Know about my experiences [CV]([https://drive.google.com/file/d/1VGHjaIjBKUkcT3dsIcbEoBy1K-SFFD0z/view?usp=sharing](https://drive.google.com/file/d/1e0pWaCArFSTvH49g3qqpyMsb1aWZKuvs/view?usp=drive_link))
+- 📄 Know about my experiences [CV](https://drive.google.com/file/d/1e0pWaCArFSTvH49g3qqpyMsb1aWZKuvs/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
